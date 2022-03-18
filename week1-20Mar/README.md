@@ -1,6 +1,8 @@
 # Week 1 English Homework - 20 March
 
-The next text to read is 'The Necklace' by Guy de Maupassant. It is also a shorter story, though a little longer than 'The Gift of the Magi' You can find the text [here](https://faculty.ksu.edu.sa/sites/default/files/the_diamond_necklace.pdf). Let me know if you have any problems opening it.
+The next text to read is 'The Necklace' by Guy de Maupassant. It is also a shorter story, though a little longer than 'The Gift of the Magi'.
+
+You can find the text [here](https://faculty.ksu.edu.sa/sites/default/files/the_diamond_necklace.pdf). Let me know if you have any problems opening it.
 
 If the children can read this ahead of our next lesson, that would be great.
 
