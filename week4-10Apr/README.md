@@ -1,4 +1,4 @@
-# Week 4 English Homeword - 10 April
+# Week 4 English Homework - 10 April
 
 A few questions for the students to complete over the next week, as well as reading the second half of the novella as discussed.
 
