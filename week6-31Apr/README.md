@@ -1,4 +1,4 @@
-# Week 5 English Homework - 31 April
+# Week 6 English Homework - 31 April
 
 I need the students to answer some questions about the [story](TreasureInTheForest.pdf), which link back to what we were talking about in today's lesson.
 
